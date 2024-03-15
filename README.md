@@ -1,1 +1,0 @@
-# prot-tipo_lana_3a_
